@@ -1,2 +1,3 @@
 # itsfun.github.io
-https://itsfun.tk
+~~https://itsfun.tk~~ # Cancled by freenom without any reasons (not expired), incredible!
+https://itsfun.top
